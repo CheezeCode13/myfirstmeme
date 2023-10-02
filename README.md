@@ -1,0 +1,2 @@
+# myfirstmeme
+Meme Pertama
